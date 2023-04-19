@@ -1,1 +1,1 @@
-# thakurbuspass
+# thakur-buspass
